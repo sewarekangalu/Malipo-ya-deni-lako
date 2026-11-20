@@ -1,2 +1,2 @@
-index html# Malipo-ya-deni-lako
+ Malipo-ya-deni-lako
 lipa mkopo wako
